@@ -1,0 +1,1 @@
+The sundae is an ice cream dessert. It typically consists of one or more scoops of ice cream topped with sauce or syrup and in some cases other toppings such as: sprinkles, whipped cream, marshmallows, peanuts, maraschino cherries, or other fruits (e.g. bananas and pineapple in a banana split).
